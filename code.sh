@@ -1,0 +1,1 @@
+Jazylgan coddo ozgoruu bolduu!
